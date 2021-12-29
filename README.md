@@ -1,1 +1,0 @@
-# sarsembek-adil
